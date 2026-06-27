@@ -3,6 +3,10 @@
 kawaii !
   <img width="536" height="214" alt="kills yo ass" src="https://github.com/user-attachments/assets/844d14ba-c25d-46e6-8e68-09c3b224c74b" />
 
-
-  0_<
+ 
+ .  
+ .  
+ .  
+   
+   0_<
 <img width="980" height="257" alt="le mane" src="https://github.com/user-attachments/assets/acde6216-d706-4c64-a3d5-abca2102cfff" />
