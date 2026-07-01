@@ -14,3 +14,7 @@ kawaii !
 !
 
 <img width="744" height="468" alt="archy wemmy" src="https://github.com/user-attachments/assets/bb3f47fe-4443-4969-a54a-56f0b6c806a3" />
+
+
+
+<img width="480" height="270" alt="mustard kethcup fm" src="https://github.com/user-attachments/assets/98de3c70-2e73-4264-adf5-6d6ba73793ca" />
