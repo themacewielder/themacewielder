@@ -1,1 +1,1 @@
-<img src="https://kommodo.ai/i/cNQFwM29Omqv19zGpZPW" width="60%" align="center">
+<img src="https://postimg.cc/LqFyvGrS" width="60%" align="center">
